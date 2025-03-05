@@ -10,7 +10,7 @@ This article will take a deep dive into TradeEU Global’s regulation, trading c
 
 
 
-![image](https://github.com/Trader-review/TradeEU-scam-review/blob/6e9788f259e3a353a01e2960ff325220ad4753e0/tradeeu%20home%20page.png)
+![image](https://github.com/Trader-review/TradeEU-Global-scam-review/blob/5b86e8739b30a72d856244a769c19568a6675af4/tradeeu%20global%20regulated.jpg)
 
 Is TradeEU Global a Scam or a Legitimate Broker?
 --------------------
